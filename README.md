@@ -1,1 +1,4 @@
-AaryanSaroha![Uploading Screenshot 2025-05-11 124606.png…]()
+AaryanSaroha
+Subscribe on yt - @taglox6908
+TILL NEXT UPDATE 
+IIT school dropper batch comming sooooooooonnn'''''
